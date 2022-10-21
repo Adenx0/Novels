@@ -6,7 +6,7 @@
 
 # 目录
 
-奥特曼任意键
+[奥特曼任意键](https://github.com/Adenx0/Novels/blob/main/%E9%83%BD%E5%B8%82%E5%BC%82%E8%83%BD/%E5%A5%A5%E7%89%B9%E6%9B%BC%E4%BB%BB%E6%84%8F%E9%94%AE.md)
 
 网游之逆天戒指(烂尾)
 
