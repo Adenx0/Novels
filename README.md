@@ -12,7 +12,7 @@
 
 [贝利亚之何为黑暗](https://github.com/Adenx0/Novels/blob/main/%E5%A5%A5%E7%89%B9%E6%9B%BC/%E8%B4%9D%E5%88%A9%E4%BA%9A%E4%B9%8B%E4%BD%95%E4%B8%BA%E9%BB%91%E6%9A%97.md)(永久停更)
 
-穿越贝利亚(完结)
+[穿越贝利亚](https://github.com/Adenx0/Novels/blob/main/%E5%A5%A5%E7%89%B9%E6%9B%BC/%E7%A9%BF%E8%B6%8A%E8%B4%9D%E5%88%A9%E4%BA%9A.md)(完结)
 
 奥特曼修仙传(烂尾)
 
