@@ -8,7 +8,7 @@
 
 [奥特曼任意键](https://github.com/Adenx0/Novels/blob/main/%E9%83%BD%E5%B8%82%E5%BC%82%E8%83%BD/%E5%A5%A5%E7%89%B9%E6%9B%BC%E4%BB%BB%E6%84%8F%E9%94%AE.md)
 
-网游之逆天戒指(半烂尾)
+[网游之逆天戒指](https://github.com/Adenx0/Novels/blob/main/%E8%99%9A%E6%8B%9F%E7%BD%91%E6%B8%B8/%E7%BD%91%E6%B8%B8%E4%B9%8B%E9%80%86%E5%A4%A9%E6%88%92%E6%8C%87.md)(半烂尾)
 
 贝利亚之何为黑暗(永久停更)
 
