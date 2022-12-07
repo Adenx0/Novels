@@ -61,3 +61,5 @@ SCP:我从D级开始崛起(完结)
 ### 肉
 
 [乐可](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E4%B9%90%E5%8F%AF.md)(完结)——金银花露
+
+姜可(完结)——Juneyyyy
