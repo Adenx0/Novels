@@ -63,3 +63,15 @@ SCP:我从D级开始崛起(完结)
 [乐可](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E4%B9%90%E5%8F%AF.md)(完结)——金银花露
 
 [姜可](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E5%A7%9C%E5%8F%AF.md)(完结)——Juneyyyy
+
+穿进盗版肉文——泊肖
+
+重生之全家都是肉文男主——小尼姑沫沫
+
+轮奸公寓——狐狸尾巴
+
+淫靡人生——时肆
+
+少年阿宾全文——Ben
+
+少年阿宾第二部(非官方)——怕寂寞
