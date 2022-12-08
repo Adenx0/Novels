@@ -6,21 +6,25 @@
 
 ## 目录
 
+### 叱咤萝卜
+
+[奥特曼任意键](https://github.com/Adenx0/Novels/blob/main/%E5%A5%A5%E7%89%B9%E6%9B%BC/%E5%A5%A5%E7%89%B9%E6%9B%BC%E4%BB%BB%E6%84%8F%E9%94%AE.md)(完结)
+
+奥特曼修仙传(烂尾)、
+
+奥特末世录(完结)
+
+无敌之悠闲(完结)
+
 ### 我的世界
 
 我的世界：我有一个结构方块(停更十年)(不再更新)(灰风筹备续写)
 
 ### 奥特曼
 
-[奥特曼任意键](https://github.com/Adenx0/Novels/blob/main/%E5%A5%A5%E7%89%B9%E6%9B%BC/%E5%A5%A5%E7%89%B9%E6%9B%BC%E4%BB%BB%E6%84%8F%E9%94%AE.md)(完结)
-
 [贝利亚之何为黑暗](https://github.com/Adenx0/Novels/blob/main/%E5%A5%A5%E7%89%B9%E6%9B%BC/%E8%B4%9D%E5%88%A9%E4%BA%9A%E4%B9%8B%E4%BD%95%E4%B8%BA%E9%BB%91%E6%9A%97.md)(永久停更)(消失)
 
 [穿越贝利亚](https://github.com/Adenx0/Novels/blob/main/%E5%A5%A5%E7%89%B9%E6%9B%BC/%E7%A9%BF%E8%B6%8A%E8%B4%9D%E5%88%A9%E4%BA%9A.md)(完结)
-
-奥特曼修仙传(烂尾)
-
-奥特末世录(完结)
 
 重生雷杰多(消失)
 
@@ -33,8 +37,6 @@
 直播在诸天万界作死(完结)
 
 我的微信连三界(连载)
-
-无敌之悠闲(完结)
 
 [网游之逆天戒指](https://github.com/Adenx0/Novels/blob/main/%E8%99%9A%E6%8B%9F%E7%BD%91%E6%B8%B8/%E7%BD%91%E6%B8%B8%E4%B9%8B%E9%80%86%E5%A4%A9%E6%88%92%E6%8C%87.md)(半烂尾)
 
