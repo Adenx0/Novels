@@ -64,11 +64,11 @@ SCP:我从D级开始崛起(完结)
 
 [姜可](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E5%A7%9C%E5%8F%AF.md)(完结)——Juneyyyy
 
-穿进盗版肉文——泊肖
+穿进盗版肉文(完结)——泊肖
 
 重生之全家都是肉文男主——小尼姑沫沫
 
-[轮奸公寓](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E8%BD%AE%E5%A5%B8%E5%85%AC%E5%AF%93.md)——狐狸尾巴
+[轮奸公寓](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E8%BD%AE%E5%A5%B8%E5%85%AC%E5%AF%93.md)(疑似完结)(未找到后续)(不考虑续写)——狐狸尾巴
 
 淫靡人生——时肆
 
