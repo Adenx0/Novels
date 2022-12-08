@@ -66,9 +66,11 @@ SCP:我从D级开始崛起(完结)
 
 [姜可](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E5%A7%9C%E5%8F%AF.md)(完结)——Juneyyyy
 
-深不可测(完结)——wy紫陌
+[深不可测](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E6%B7%B1%E4%B8%8D%E5%8F%AF%E6%B5%8B.md)(完结)——wy紫陌
 
-穿进盗版肉文(完结)——泊肖
+[干死老板/绝对侵占](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E5%B9%B2%E6%AD%BB%E8%80%81%E6%9D%BF.%E7%BB%9D%E5%AF%B9%E4%BE%B5%E5%8D%A0.md)(完结)——糖果
+
+[穿进盗版肉文](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E7%A9%BF%E8%BF%9B%E7%9B%97%E7%89%88%E8%82%89%E6%96%87.md)(完结)——泊肖
 
 重生之全家都是肉文男主——小尼姑沫沫
 
