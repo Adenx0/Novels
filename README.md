@@ -66,14 +66,16 @@ SCP:我从D级开始崛起(完结)
 
 [姜可](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E5%A7%9C%E5%8F%AF.md)(完结)——Juneyyyy
 
+深不可测(完结)——wy紫陌
+
 穿进盗版肉文(完结)——泊肖
 
 重生之全家都是肉文男主——小尼姑沫沫
 
 [轮奸公寓](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E8%BD%AE%E5%A5%B8%E5%85%AC%E5%AF%93.md)(疑似完结)(未找到后续)(不考虑续写)——狐狸尾巴
 
-淫靡人生——时肆
+淫靡人生(完结)——时肆
 
-少年阿宾全文——Ben
+少年阿宾全文(完结)——Ben
 
 少年阿宾第二部(非官方)——怕寂寞
