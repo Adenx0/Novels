@@ -76,7 +76,7 @@ SCP:我从D级开始崛起(完结)
 
 [轮奸公寓](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E8%BD%AE%E5%A5%B8%E5%85%AC%E5%AF%93.md)(疑似完结)(未找到后续)(不考虑续写)——狐狸尾巴
 
-淫靡人生(完结)——时肆
+[淫靡人生](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E6%B7%AB%E9%9D%A1%E4%BA%BA%E7%94%9F.md)(完结)——时肆
 
 少年阿宾全文(完结)——Ben
 
