@@ -78,6 +78,6 @@ SCP:我从D级开始崛起(完结)
 
 [淫靡人生](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E6%B7%AB%E9%9D%A1%E4%BA%BA%E7%94%9F.md)(完结)——时肆
 
-少年阿宾全文(完结)——Ben
+[少年阿宾](https://github.com/Grey-Wind/Novels/blob/main/%E8%82%89/%E5%B0%91%E5%B9%B4%E9%98%BF%E5%AE%BE.md)(完结)——Ben
 
 少年阿宾第二部(非官方)——怕寂寞
